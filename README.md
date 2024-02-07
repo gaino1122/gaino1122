@@ -1,3 +1,3 @@
 
-- 📫 How to reach me discord#babaman1773
+- 📫 How to reach me discord#babaman
 
